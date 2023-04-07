@@ -1,2 +1,2 @@
-# google-play-stuffs
-Feel free to use it if you want to
+# Privacy Policy:
+I do not collect any data!
